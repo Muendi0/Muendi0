@@ -1,6 +1,6 @@
 # Hi there, I'm Janet Muendi! 👋
 
-![Banner Image](https://i.pinimg.com/736x/b3/15/20/b315205f2fc94cfcebc9534f2f0e4465.jpg))
+![Banner Image](https://i.pinimg.com/736x/b3/15/20/b315205f2fc94cfcebc9534f2f0e4465.jpg)
 
 ## About Me 🚀
 
